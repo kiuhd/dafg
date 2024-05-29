@@ -1,6 +1,6 @@
 # A妹和JustinBieber
 
-# <a href="https://https://github.com/kiuhd/dfrw/issues/1">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<hr/> <a href="https://github.com/kiuhd/dfrw/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 A妹和JustinBieber
 尽量的不去刺激他。
@@ -8,7 +8,7 @@ A妹和JustinBieber
 但越是如此，越是会让此刻本来就天昏地暗的兰墨封有一种‘已经被忽视’、‘已经不具备资格’、‘已经被排斥’这样的感觉产生！
 
 家族刚刚传来噩耗，这些人就立即不将我放在眼里了。
-http://fntpcs.com
+
 兰墨封心中，一股‘没了娘的孩子’这样的感觉油然而生。
 
 不定下一刻，这些家伙就会狼一样冲过来将我兰家这仅有的一点实力瓜分干净……
